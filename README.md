@@ -4,4 +4,6 @@ The course also focuses on skill development. By teaching children literacy, num
 For students, this course offers awareness of the socio-economic difficulties and prejudices faced by underprivileged children. It is particularly valuable for future professionals in fields like education and healthcare, equipping them with the knowledge to advocate for inclusive practices.
 Community engagement is another priority. Collaborating with organizations like Shoishob fosters civic duty and demonstrates the lasting impact of community service. The course not only benefits the children but also promotes personal growth in students, teaching them patience, adaptability, and perseverance.
 In summary, the Community Connect course creates a symbiotic relationship between students and the community, building empathy, skills, inclusion, and awareness, and fostering more socially responsible individuals.
-![Uploading image.png…]()
+
+<img width="353" alt="Screenshot 2025-03-15 at 8 31 38 AM" src="https://github.com/user-attachments/assets/b7b45dba-b70b-4298-b790-0adbf6a17ee8" />
+<img width="240" alt="Screenshot 2025-03-15 at 8 32 08 AM" src="https://github.com/user-attachments/assets/15d6ac80-eb61-481b-b0d8-adafc27e0313" />
